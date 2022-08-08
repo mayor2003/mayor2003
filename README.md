@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mayor2003
+- 👀 I’m interested in web development
+- 🌱 I’m currently learning website development.
+- 💞️ I’m looking to collaborate on a project with you.
+- 📫 How to reach me: you can reac me on my email at yeboyisa2@gmail.com
